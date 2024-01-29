@@ -9,7 +9,7 @@ My career has taken an exciting turn. I moved from working in pharmacy marketing
 ✨Alongside my analytics work, I also give back to the community by being part of the [Learning and Applied Research team at Okanagan College](https://www.okanagan.bc.ca/learning-and-applied-research). In this role, I use my data skills to help Okanagan breweries become more cost-effective on waste water management. 
 
 
-Outsie the world of tech, you can find me embracing the great outdoors. 🏃‍♂️ I'm proud to have completed a full marathon in Bangkok in 2020. Running is not just a hobby; it's a testament to my determination and love for new challenges.
+Outside the world of tech, you can find me embracing the great outdoors. 🏃‍♂️ I love running and I'm proud to have completed a full marathon in Bangkok in 2020.
 
 🚴Cycling and hiking are also my go-to activities. 🌲 And recently, I've taken up calisthenics to boost my energy levels and sharpen my focus and concentration. It's all about balance, right?
 
