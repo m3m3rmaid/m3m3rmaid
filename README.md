@@ -1,6 +1,6 @@
 ## 🚀About me
 
-Hello there! 👋 I'm Marissa, and I've transitioned from pharmacy to becoming an enthusiastic data analyst.   🚀
+Hello there! 👋 I'm Marissa, and I've transitioned from pharmacy to becoming a data analyst.   🚀
 
 🤝 I'm currently on the lookout for opportunities to bring my analytical skills to a new role as a Data Analyst.
 
