@@ -13,6 +13,6 @@ Outside the world of tech, you can find me embracing the great outdoors. 🏃‍
 
 🚴Cycling and hiking are also my go-to activities. 🌲 And recently, I've taken up calisthenics to boost my energy levels and sharpen my focus and concentration. It's all about balance, right?
 
-🌎Traveling is another passion of mine. It's a way to connect with different cultures, perspectives, and experiences - much like how we connect through code and technology. 
+🌎Traveling is another passion of mine. It's a way to connect with different cultures, perspectives, and experiences.
 
 Let's stay connected! Feel free to reach out to me on [LinkedIn](https://www.linkedin.com/in/marissa-jaikaew-1155911mar/)  ✨
